@@ -1,2 +1,2 @@
-# My platlist
+# My playlist
 P.O.D: Southtown
